@@ -1,1 +1,0 @@
-# daveadams.github.io
